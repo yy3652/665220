@@ -22,4 +22,4 @@
 我们始终坚持合法合规运营，所有内容仅供年满18岁的成年用户浏览。在享受精彩内容的同时，也请大家自觉遵守当地法律法规，文明上网，理性观看。如您喜欢本站内容，欢迎收藏并分享给朋友，让更多人一同畅享高质量的日本AV免费资源。
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/yy3652/665220 ）</span>
